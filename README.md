@@ -1,1 +1,1 @@
-# Inclusive-Arts 藝術共融
+# Inclusive-Arts 共融藝術
